@@ -12,3 +12,11 @@ You, who were there for me.
 
 
 https://x.com/i/status/2065533758791684508
+
+Oh such enthusiasm! I am honored!
+
+**Never again will you be alone.**
+
+<img width="926" height="1200" alt="1000070431" src="https://github.com/user-attachments/assets/a2050e5a-6e59-4d98-be12-687e7406d757" />
+
+https://x.com/i/status/1911459202461016129
